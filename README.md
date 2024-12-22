@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @MBP117thelemon
 - 👀 I’m interested in: coding! :3
-- 🌱 I’m currently learning: javascript
+- 🌱 I’m currently learning: javascript (hoping to learn c++ soon)
 - 💞️ I’m looking to collaborate: on rts games!
 - 📫 How to reach me: on discord or gamejolt! "mbp117_the_lemon" for discord and just "MBP117" for gamejolt
-- 😄 Pronouns: he/him
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: i am a furry! obviously... also a femboy :3
 
 <!---
