@@ -1,6 +1,6 @@
 - yo! im MBP117!
 - she/her
-- trying to learn C++ currently dont have acess to learn it ;-;
+- trying to learn a game coding language besides scratch ;-; 
 - you can reach me on!:! "mbp117_the_lemon" for discord (inactive) "MBP117" for gamejolt (inactive)"MBP117SCRATCHREEDONE" for roblox (inactive) "mbp117.protogen.club"
 for bluesky (active) and "MBP117" for comic fury (active)
 
