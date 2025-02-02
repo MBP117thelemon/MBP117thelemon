@@ -2,7 +2,7 @@
 - she/her
 - trying to learn a game coding language besides scratch ;-; 
 - you can reach me on!:! "mbp117_the_lemon" for discord (inactive) "MBP117" for gamejolt (inactive)"MBP117SCRATCHREEDONE" for roblox (inactive) "mbp117.protogen.club"
-for bluesky (active) "MBP117" for comic fury (active) and for cara (active) mbp117
+for bluesky (active) "MBP117" for comic fury (active) for cara (active) "mbp117" for magma (active) "depressed-femboy" 
 
 
 <!---
